@@ -1,2 +1,2 @@
-My first readme by yours truly kosy
+My first readme by yours truly kosyy
 
